@@ -1,2 +1,4 @@
 # jovz-
-100 % fidelidad 
+hola amigos como estan 
+soy jovz 
+bienvendios
